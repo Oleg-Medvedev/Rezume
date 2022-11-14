@@ -1,5 +1,5 @@
 ### Олег Медведев
-![](C:\Users\user\Desktop\xrXRVK8mljk.jpg)
+![xrXRVK8mljk_photo-resizer ru](https://user-images.githubusercontent.com/117758014/201726322-eb20d8e4-3e73-4f17-a86f-dcdf770f466e.jpg)
 #### QA Engineer
 ##### Контакты:
 тел.: +7(911)179-69-10
