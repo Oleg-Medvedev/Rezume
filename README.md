@@ -3,6 +3,7 @@
 #### QA Engineer
 ##### Контакты:
 тел.: +7(911)179-69-10
+
 email: olegmedvedev7@mail.ru
 ***
 #### Образование:
